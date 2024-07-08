@@ -20,11 +20,6 @@ telegram频道电报群三大主题:开车，政治，机场
 
 
 
-## 薅羊毛：
-
-
-[免费白嫖公益代理vpn机场](https://t.me/yangmaoshare) :随手分享免费白嫖公益代理/vpn/机场和羊毛 @yangmaoshare
-
 
 ## 科技/资源收集：
 
