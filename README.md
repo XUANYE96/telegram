@@ -14,7 +14,7 @@ telegram频道电报群三大主题:开车，政治，机场
 
 
 
-[自用稳定高速国外ssr-v2ray-trojan专线机场推荐](https://github.com/hwanz/SS-SSR-V2ray/blob/master/README.md)
+[电报最全资源搜索群组](https://t.me/qwzyso)
 
 [机场推荐链接2](https://sites.google.com/view/honven/%E9%A6%96%E9%A1%B5/%E6%9C%BA%E5%9C%BA%E6%8E%A8%E8%8D%90?authuser=1)
 
