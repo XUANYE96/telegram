@@ -530,7 +530,7 @@ jsbox,surge,Quantumult X，scriptable等脚本相关：
 
 ## 开车频道
 
-这部分请查看频道消息：https://t.me/jichangtj/569
+这部分请查看频道消息：[https://t.me/tgzhinan01]
 
 
 -------------------------------------
