@@ -340,41 +340,6 @@ Livegram Bot创建私聊机器人  @LivegramBot
 
 
 
-## 合租群卖货等：
-[Netflix |YouTube|Spotify |office365|Hbo|Surge|美剧|等音乐影视聊天机场电影盒子](https://t.me/hezu) @hezu
-
-
-
-[Licenses Group | 合租群组:Licensess](https://t.me/Licensess)   正规Netflix合租，Youtube premium合租，spotify，office等合租 @Licensess  
-
-
-
-[Netflix和他的好朋友🅥](https://t.me/mffjc) @mffjc 
-
-
-
-[🔔80良铺📋补货及优惠:Notice80lpL](https://t.me/Notice80lp) @Notice80lp 
-
-
-
-[Google Voice Shop:google_voice_shop](https://t.me/google_voice_shop) 卖gv号的 @google_voice_shop
-
-
-
-[百度 百度云 网盘 SVIP合租](https://t.me/baiduyunm) @baiduyunm 
-
-
-
-[大长腿的频道](https://t.me/DCT_Channel) @DCT_Channel 
-
-[Telegram合租频道【Netflix,Disney,HBO,Prim,Spotify,Tidal,Aple music,Amazon](https://t.me/netflix_bus) @netflix_bus
-
-
-[SweetShare Channel](https://t.me/SweetShareChannel) 各种合租 @SweetShareChannel 
-
-
-[Google voice购买 | Google Voice靓号 | Google voice帐号出售 | Google voice批发-GuGeMi.Com](https://t.me/gugemi) @gugemi 
-
 ## 政治等:
 [Route 66/移民路上/资讯频道](https://t.me/OnTheWayToImmigration) @OnTheWayToImmigration 
 
