@@ -16,7 +16,7 @@ telegram频道电报群三大主题:开车，政治，机场
 
 [电报最全资源搜索群组](https://t.me/qwzyso)
 
-[机场推荐链接2](https://sites.google.com/view/honven/%E9%A6%96%E9%A1%B5/%E6%9C%BA%E5%9C%BA%E6%8E%A8%E8%8D%90?authuser=1)
+[极搜-电报中文搜索机器人](t.me/jisou2bot?start=a_5322328067)
 
 [twitter科学上网与机场观察频道](https://twitter.com/jichangtj)
 
