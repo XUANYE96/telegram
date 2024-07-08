@@ -18,7 +18,6 @@ telegram频道电报群三大主题:开车，政治，机场
 
 [极搜-电报中文搜索机器人](https://t.me/jisou2bot?start=a_5322328067)
 
-[twitter科学上网与机场观察频道](https://twitter.com/jichangtj)
 
 
 ## 薅羊毛：
